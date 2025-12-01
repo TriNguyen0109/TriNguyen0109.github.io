@@ -15,7 +15,7 @@ Xin chào! Mình là Nguyễn Minh Trí, hiện đang học tập tại trườn
 - Giải nhất kì thi học sinh giỏi cấp tỉnh.
 
 ## 📫 Liên hệ
-- Email: **nmtr099019@gmail.com**  
+- Email: **nmtri099019@gmail.com**  
 
 
 ---
